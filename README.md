@@ -1,0 +1,1 @@
+# Gartner-Top-10-Strategic-Technology-Trends-for-2023
